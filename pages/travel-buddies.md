@@ -13,6 +13,6 @@ Suki and I discuss our travels across Europe alongside the blue prague magnet, t
 
 
 ### Katherine
-Katherine and I discuss our adventures with the Oregon cat magnet, the [Alicante house magnet] (https://sophiacongdon00.github.io/my-travel-magnets/item.html?id=alicante-house-magnet), and the Guinness magnet. Katherine and I met during our study abroad program in Alicante, Spain in January of 2022.
+Katherine and I discuss our adventures with the Oregon cat magnet, the [Alicante house magnet](https://sophiacongdon00.github.io/my-travel-magnets/item.html?id=alicante-house-magnet), and the Guinness magnet. Katherine and I met during our study abroad program in Alicante, Spain in January of 2022.
 
 ---
