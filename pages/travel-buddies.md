@@ -9,7 +9,7 @@ permalink: /travel-buddies.html
 Some magnet profiles include audio clips. These conversations are between my friends I've traveled with and myself. 
 
 ### Suki
-Suki and I discuss our travels across Europe alongside the [blue prague magnet](https://sophiacongdon00.github.io/my-travel-magnets/item.html?id=blue-prague-parent), the [three oranges magnets](https://sophiacongdon00.github.io/my-travel-magnets/item.html?id=three-oranges-magnets), the [teapot magnet](https://sophiacongdon00.github.io/my-travel-magnets/item.html?id=teapot-house-magnet, and plaster bust magnet). Suki and I have been friends since 2015.
+Suki and I discuss our travels across Europe alongside the [blue prague magnet](https://sophiacongdon00.github.io/my-travel-magnets/item.html?id=blue-prague-parent), the [three oranges magnets](https://sophiacongdon00.github.io/my-travel-magnets/item.html?id=three-oranges-magnets), the [teapot magnet](https://sophiacongdon00.github.io/my-travel-magnets/item.html?id=teapot-house-magnet), and [plaster bust magnet](https://sophiacongdon00.github.io/my-travel-magnets/item.html?id=plaster-bust-magnet). Suki and I have been friends since 2015.
 
 
 ### Katherine
