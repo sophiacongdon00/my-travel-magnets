@@ -16,10 +16,7 @@ Suki and I discuss our travels across Europe alongside the [blue prague magnet](
 Katherine and I discuss our adventures with the [Oregon cat magnet](https://sophiacongdon00.github.io/my-travel-magnets/item.html?id=oregon-cat-magnet), the [Alicante house magnet](https://sophiacongdon00.github.io/my-travel-magnets/item.html?id=alicante-house-magnet), and the [Guinness magnet](https://sophiacongdon00.github.io/my-travel-magnets/item.html?id=dublin-guinness-magnet). Katherine and I met during our study abroad program in Alicante, Spain in January of 2022.
 
 
-### Athena
-Athena and I talk about our roadtrips across the US, including the Route 66 trip we took in 2024. Athena and I met in 2009 in elementary school. We discuss the BLANK magnet and the BLANK magnet.
-
 ### Emma
-Emma and I chat about our trip to [New Orleans](LINK HERE) during the spring break of our senior year of college. Emma and I met in orchestra class during our freshman year of high school.
+Emma and I chat about our trip to [New Orleans](https://sophiacongdon00.github.io/my-travel-magnets/item.html?id=cafe-dumonde-magnet) during the spring break of our senior year of college. Emma and I met in orchestra class during our freshman year of high school.
 
 ---
